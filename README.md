@@ -1,4 +1,4 @@
-### ¡Hola a todos! Mi nombre es José 👋
+### ¡Hola a todos! Mi nombre es José Rodríguez 👋
 
 ## Mis estadisticas son:
 
